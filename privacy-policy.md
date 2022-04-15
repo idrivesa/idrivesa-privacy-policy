@@ -1,5 +1,8 @@
 IDriveSA (Pty) Ltd
+
 Privacy Policy
+---------------
+
 IDriveSA's Privacy Policy ("Policy") sets out what information we collect, how we collect it, and what
 we do with it. Please call or WhatsApp us on +27 73 201 2365 if you have any questions or would like
 additional information regarding this Policy.
